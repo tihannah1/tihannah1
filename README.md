@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tihannah1
-- 🌱 I am Junior DevOps
+- 🌱 Looking for an DevOps Internship role
 - 💞️ I’m looking to collaborate
 - 📫 tiannah1250@gmail.com
 - 😄 Pronouns: ...
